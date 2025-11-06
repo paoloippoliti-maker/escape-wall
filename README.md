@@ -1,0 +1,1 @@
+gif muro che esplode
